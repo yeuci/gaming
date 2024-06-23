@@ -1,2 +1,2 @@
 # Gaming
-![alt text](https://cdn.discordapp.com/attachments/1075802696323436545/1122584938529685594/image.png)
+![alt text](https://cdn.discordapp.com/attachments/1075802696323436545/1122584938529685594/image.png?ex=6679b231&is=667860b1&hm=66d445bf829bb697a131535ba3547dda146f5c265d07d6210bc78cc012952f0f&)
